@@ -1,0 +1,1 @@
+# Exploratory-Analysis-of-BAI-score-of-different-kind-of-people-at-covid-time
